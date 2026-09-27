@@ -1,0 +1,1 @@
+# Darell-Trading-Signal-and-analyzer-0.2
